@@ -1,4 +1,4 @@
-bikeX At.tension 2024
+BIKEX AT.TENSION 2024
 
 English Version below
 
@@ -11,7 +11,7 @@ Donnerstag (05.09.) 10Uhr vom S-Bhf Oranienburg
 
 Die Strecke ist etwa 87 km lang!
 
-Die Gruppe wird von erfahrenen Radler*innen begleitet, die euch leichtfüßig ans Ziel begleiten. Dennoch empfehlen wir, die Routen auch auf eurem GPS-tauglichen Kommunikationsgerät dabei zu haben. Als App mit Offline-Kartenmaterial für brandenburgische Funklöcher eignet sich zum Beispiel OSMand. Oranienburg - Lärz: Komoot | GPX
+Die Gruppe wird von erfahrenen Radler*innen begleitet, die euch leichtfüßig ans Ziel begleiten. Dennoch empfehlen wir, die Routen auch auf eurem GPS-tauglichen Kommunikationsgerät dabei zu haben. Als App mit Offline-Kartenmaterial für brandenburgische Funklöcher eignet sich zum Beispiel OSMand. Oranienburg - Lärz: Komoot, GPX
 
 “So sportlich bin ich nicht!”, zweifelt ihr jetzt vielleicht. Grundsätzlich braucht man bei 87 km und mindestens 5-6h reiner Fahrzeit eine gewisse Fitness. Gemeinsam als Gruppe fahren wir aber in gemächlichem Tempo und machen Pipi-/Trink- und kurze Erholungspausen, wo immer es nötig und erwünscht ist. Wir wollen eine mindestens angenehme, bestenfalls ultraspaßige Tour zusammen erleben, keine sportliche Meisterleistung in Rekordzeit.
 
