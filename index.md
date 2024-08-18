@@ -3,8 +3,6 @@ bikeX At.tension 2024
 English Version below
 
 
-Kurzfassung
-
 Gemeinsam mit dem Rad zur At.tension fahren? Eine Idee die sich bewährt hat, begleitet uns für ein medium-sportives Event der Extraklasse, das darüber hinaus noch CO2-neutral ist. Wir bieten geführte Fahrradtouren für die Anreise zur At.tension an:
 
 Start:
