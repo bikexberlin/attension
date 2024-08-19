@@ -31,7 +31,7 @@ Kurzfassung
     Zusammen mit dem Fahrrad zur At.tension.
     Eine begleitete Tour am Donnerstag den 15.09.24 um 10 Uhr vom S-Bhf Oranienburg.
     Gemächliches Tempo. Wir fahren keine Rennen und richten uns nach den Langsamsten.
-    Es ist ein Gepäcktransport zur At.tension von unserer Seite möglich.
+    Es ist ein kostenloses Gepäcktransport zur At.tension von unserer Seite möglich.
     Telegram-Gruppe für Austausch und Fragen: https://t.me/+VUv2dQbU44ZmN2Vi](https://t.me/+67SB0Rqc5UcwMzEy
     oder schreibe uns an bikex@mail.de Kommt in Fahrt mit uns! Wir freuen uns auf euch.
 
@@ -62,7 +62,7 @@ short Version
     Cycling to the At.tension together.
     We meet Thursday 05.09.24 10:00 am at S-Bhf Oranienburg.
     The route will be approximatly 87 km long.
-    Luggage transport organized from our side.
+    Free luggage transport organized from our side.
     If you have any questions please join our Telegram Group: Link
     or write us via bikex@mail.de
 
