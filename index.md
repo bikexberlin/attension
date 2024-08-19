@@ -19,6 +19,8 @@ Die Gruppe wird von erfahrenen Radler*innen begleitet, die euch leichtfüßig an
 
 “Aber wohin mit meinem Festivalgepäck?”, Wir organisieren einen Bus um euer Gepäck mitnehmen zu können und euch die Fahrt leichter zu machen. Abgabe der Gepäcke am S-Bhf Oranienburg um 09:30.
 
+"Kostet die Tour etwas?" Die Tour is kostenfrei, es entstehen weder für die Tour noch für das Gepäckshuttle kosten.
+
 "Ich habe ein Frage!?"", meldet euch gerne in unserer Telegram Gruppe, dort können wir Fragen beantworten und Details klären: über diesen Link zu erreichen: https://t.me/+VUv2dQbU44ZmN2Vi](https://t.me/+67SB0Rqc5UcwMzEy
 
 
@@ -47,6 +49,8 @@ The group will be accompanied by experimented cyclists who will pedal with you s
 “But I always do a world-class performance in record time” we hear you say. And you can! We publish our routes beforehand in various formats. If you want to go fast, find a buddy and hit the road when it gets too slow for you.
 
 “But how will I carry my luggage?”, you might be asking yourself. We organize a luggage transport, you just need to show up at 09:30 to pack your belongings in our truck.
+
+“Does the tour cost anything?” The tour is free of charge, there are no costs for the tour or the luggage transport.
 
 "I have a question!?"", join our Telegram Group: https://t.me/+VUv2dQbU44ZmN2Vi](https://t.me/+67SB0Rqc5UcwMzEy, there we can answer questions and clarify details.
 
