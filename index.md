@@ -7,7 +7,7 @@ Gemeinsam mit dem Rad zur At.tension fahren? Eine Idee die sich bewährt hat, be
 
 Start:
 
-Donnerstag (05.09.) 10Uhr vom S-Bhf Oranienburg
+Donnerstag (05.09.) 10Uhr vom [S-Bhf Oranienburg](https://www.openstreetmap.org/?mlat=52.75439&mlon=13.24829#map=19/52.75436/13.24828) 
 
 Die Strecke ist etwa 87 km lang!
 
@@ -21,26 +21,26 @@ Die Gruppe wird von erfahrenen Radler*innen begleitet, die euch leichtfüßig an
 
 "Kostet die Tour etwas?" Die Tour is kostenfrei, es entstehen weder für die Tour noch für das Gepäckshuttle kosten.
 
-"Ich habe ein Frage!?"", meldet euch gerne in unserer Telegram Gruppe, dort können wir Fragen beantworten und Details klären: über diesen Link zu erreichen: https://t.me/+VUv2dQbU44ZmN2Vi](https://t.me/+67SB0Rqc5UcwMzEy
+"Ich habe ein Frage!?"", meldet euch gerne in unserer Telegram Gruppe, dort können wir Fragen beantworten und Details klären: über diesen Link zu erreichen: https://t.me/+67SB0Rqc5UcwMzEy
 
 
 Kurzfassung
 
 "Das ist mir alles zu viel Text!" Sogar an dich haben wir gedacht! Hier nochmal die Kurzversion:
 
-    Zusammen mit dem Fahrrad zur At.tension.
-    Eine begleitete Tour am Donnerstag den 15.09.24 um 10 Uhr vom S-Bhf Oranienburg.
-    Gemächliches Tempo. Wir fahren keine Rennen und richten uns nach den Langsamsten.
-    Es ist ein kostenloses Gepäcktransport zur At.tension von unserer Seite möglich.
-    Telegram-Gruppe für Austausch und Fragen: https://t.me/+VUv2dQbU44ZmN2Vi](https://t.me/+67SB0Rqc5UcwMzEy
-    oder schreibe uns an bikex@mail.de Kommt in Fahrt mit uns! Wir freuen uns auf euch.
+Zusammen mit dem Fahrrad zur At.tension.
+- Eine begleitete Tour am Donnerstag den 15.09.24 um 10 Uhr vom S-Bhf Oranienburg.
+- Gemächliches Tempo. Wir fahren keine Rennen und richten uns nach den Langsamsten.
+- Es ist ein kostenloses Gepäcktransport zur At.tension von unserer Seite möglich.
+- Telegram-Gruppe für Austausch und Fragen: https://t.me/+67SB0Rqc5UcwMzEy
+- oder schreibe uns an bikex@mail.de Kommt in Fahrt mit uns! Wir freuen uns auf euch.
 
 
 English
 
 Who wants to join us to ride with a bicycle to the At.tension festival? We have come up with a medium-sporty event in a class of its own that is also CO2-neutral. We are offering a bike tour for the journey to At.tension festival:
 
-Thursday (05.09.) morning at 10 AM we will meet to set off from S-Bhf Oranienburg. The route is about 87 km long.
+Thursday (05.09.) morning at 10 AM we will meet to set off from [S-Bhf Oranienburg](https://www.openstreetmap.org/?mlat=52.75439&mlon=13.24829#map=19/52.75436/13.24828) . The route is about 87 km long.
 
 The group will be accompanied by experimented cyclists who will pedal with you smoothly to our destination. Nevertheless, we recommend that you have the routes with you on your GPS-compatible communication device. Maps.me, for example, is a good app with offline map material for Brandenburg’s no network spots. Oranienburg - Lärz: Komoot, GPX
 
@@ -52,18 +52,18 @@ The group will be accompanied by experimented cyclists who will pedal with you s
 
 “Does the tour cost anything?” The tour is free of charge, there are no costs for the tour or the luggage transport.
 
-"I have a question!?"", join our Telegram Group: https://t.me/+VUv2dQbU44ZmN2Vi](https://t.me/+67SB0Rqc5UcwMzEy, there we can answer questions and clarify details.
+"I have a question!?"", join our Telegram Group: https://t.me/+67SB0Rqc5UcwMzEy , there we can answer questions and clarify details.
 
 
 short Version
 
 "This is all too much text for me!" We even thought of you! Here's the short version again:
 
-    Cycling to the At.tension together.
-    We meet Thursday 05.09.24 10:00 am at S-Bhf Oranienburg.
-    The route will be approximatly 87 km long.
-    Free luggage transport organized from our side.
-    If you have any questions please join our Telegram Group: Link
-    or write us via bikex@mail.de
+- Cycling to the At.tension together.
+- We meet Thursday 05.09.24 10:00 am at S-Bhf Oranienburg.
+- The route will be approximatly 87 km long.
+- Free luggage transport organized from our side.
+- If you have any questions please join our Telegram Group: [Link](https://t.me/+67SB0Rqc5UcwMzEy)
+- or write us via bikex@mail.de
 
 Get going with us! We look forward to seeing you.
