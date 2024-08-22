@@ -23,7 +23,7 @@ Die Gruppe wird von erfahrenen Radler*innen begleitet, die euch leichtfüßig an
 
 "Kostet die Tour etwas?" Die Tour is kostenfrei, es entstehen weder für die Tour noch für das Gepäckshuttle kosten.
 
-"Ich habe ein Frage!?"", meldet euch gerne in unserer Telegram Gruppe, dort können wir Fragen beantworten und Details klären: über diesen Link zu erreichen: https://t.me/+67SB0Rqc5UcwMzEy
+"Ich habe ein Frage!?"", meldet euch gerne in unserer Telegram Gruppe, dort können wir Fragen beantworten und Details klären: über diesen Link zu erreichen: [Link](https://t.me/+67SB0Rqc5UcwMzEy)
 
 
 Kurzfassung
@@ -34,7 +34,7 @@ Zusammen mit dem Fahrrad zur At.tension.
 - Eine begleitete Tour am Donnerstag den 15.09.24 um 10 Uhr vom S-Bhf Oranienburg.
 - Gemächliches Tempo. Wir fahren keine Rennen und richten uns nach den Langsamsten.
 - Es ist ein kostenloses Gepäcktransport zur At.tension von unserer Seite möglich.
-- Telegram-Gruppe für Austausch und Fragen: https://t.me/+67SB0Rqc5UcwMzEy
+- Telegram-Gruppe für Austausch und Fragen: [Link](https://t.me/+67SB0Rqc5UcwMzEy)
 - oder schreibe uns an bikex@mail.de Kommt in Fahrt mit uns! Wir freuen uns auf euch.
 
 
@@ -54,7 +54,7 @@ The group will be accompanied by experimented cyclists who will pedal with you s
 
 “Does the tour cost anything?” The tour is free of charge, there are no costs for the tour or the luggage transport.
 
-"I have a question!?"", join our Telegram Group: https://t.me/+67SB0Rqc5UcwMzEy , there we can answer questions and clarify details.
+"I have a question!?"", join our Telegram Group: [Link](https://t.me/+67SB0Rqc5UcwMzEy) , there we can answer questions and clarify details.
 
 
 short Version
